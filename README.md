@@ -1,1 +1,1 @@
-# Cutural-Competition-Management
+# Cultural-Competition-Management
